@@ -23,7 +23,7 @@
 <p>At the core of Firestarter AI is its ability to gather detailed, accurate information on cities around the world. This data is then formatted into Kindle eBooks or physical books that are ready for sale on Amazon KDP, making it an accessible opportunity for beginners and experienced publishers alike.</p>
 <h2><strong>Firestarter AI – FEATURES</strong></h2>
 <p>Firestarter AI offers a range of features that make travel guide creation not only efficient but also profitable:</p>
-<p><strong><span data-sheets-root="1"><img class="emoji" role="img" draggable="false" src="https://s.w.org/images/core/emoji/15.0.3/svg/1f4a1.svg" alt="💡" /> </span>AI-Powered City Research</strong></p>
+<p><strong>AI-Powered City Research</strong></p>
 <p>Firestarter AI gathers comprehensive data about any major city, from famous landmarks to hidden gems. The AI research is categorized into six unique mini-adventures, each providing distinct experiences for travelers:</p>
 <ul class="has-marker">
 	<li><strong>Exploration &amp; Discovery</strong>: Focuses on landmarks, hidden spots, and city quests.</li>
@@ -33,13 +33,13 @@
 	<li><strong>Foodie Families</strong>: Local restaurants, cooking classes, and market experiences.</li>
 	<li><strong>Science &amp; Education</strong>: Interactive museums, tech exhibits, and learning centers.</li>
 </ul>
-<p><strong><span data-sheets-root="1"><img class="emoji" role="img" draggable="false" src="https://s.w.org/images/core/emoji/15.0.3/svg/1f4a1.svg" alt="💡" /> </span>Memory Maker AI Toolkit</strong></p>
+<p><strong>Memory Maker AI Toolkit</strong></p>
 <p>Create up to five unique activities for each mini-adventure, ensuring a personalized and memorable travel guide. These experiences cater to various interests, making your travel book a one-stop solution for travelers.</p>
-<p><strong><span data-sheets-root="1"><img class="emoji" role="img" draggable="false" src="https://s.w.org/images/core/emoji/15.0.3/svg/1f4a1.svg" alt="💡" /> </span>KDP-Ready Templates</strong></p>
+<p><strong>KDP-Ready Templates</strong></p>
 <p>Pre-designed Canva and Word Doc templates allow you to quickly turn your AI-generated content into polished travel guides ready for Amazon KDP. Whether you’re publishing eBooks or physical books, these templates are easy to customize and use.</p>
-<p><strong><span data-sheets-root="1"><img class="emoji" role="img" draggable="false" src="https://s.w.org/images/core/emoji/15.0.3/svg/1f4a1.svg" alt="💡" /> </span>Step-by-Step Publishing Guidance</strong></p>
+<p><strong>Step-by-Step Publishing Guidance</strong></p>
 <p>Firestarter AI walks you through every step, from content generation to publication. The provided instructions ensure that even beginners can easily follow along, making the process smooth and efficient.</p>
-<p><strong><span data-sheets-root="1"><img class="emoji" role="img" draggable="false" src="https://s.w.org/images/core/emoji/15.0.3/svg/1f4a1.svg" alt="💡" /> </span>Scalability and Income Potential</strong></p>
+<p><strong>Scalability and Income Potential</strong></p>
 <p>Firestarter AI isn’t limited to one city or one book. You can repeat the process for any destination, creating multiple streams of income by offering travel guides for different cities and niches. This opens up endless opportunities to scale your publishing business.</p>
 <h2><strong>Firestarter AI – How It Works?</strong></h2>
 <p>Firestarter AI simplifies the travel guide creation process into three straightforward steps:</p>
@@ -205,6 +205,10 @@
 </figure>
 <p><strong>ELITE BENEFITS: ENJOY BONUSES AND PERKS LIKE EARLY CHECK … GET UP TO A 80% BONUS</strong></p>
 <p><mark><strong>Please check back often as I will update you with more information.</strong></mark></p>
+<p><a href="https://oto-bundle.webflow.io/posts/total-15k-bonuses-for-you" target="_blank" rel="nofollow noopener"><strong>&gt;&gt;&gt; Option 1: ENJOY $25000 BONUSES FOR YOU &lt;&lt;&lt;</strong></a></p>
+<p><a href="https://oto-bundle.webflow.io/posts/bonuses-option-2" target="_blank" rel="nofollow noopener"><strong>&gt;&gt; Option 2: Check Out $9000+ Bonuses &lt;&lt;&lt;</strong></a></p>
+<p><a href="https://oto-bundle.webflow.io/posts/bonuses-option-3" target="_blank" rel="nofollow noopener"><strong>&gt;&gt;&gt; Option 3: App SoftWare Bonuses &lt;&lt;&lt;</strong></a></p>
+</div>
 <p><a href="https://oto-bundle.webflow.io/posts/total-15k-bonuses-for-you" target="_blank" rel="nofollow noopener"><strong>&gt;&gt;&gt; Option 1: ENJOY $25000 BONUSES FOR YOU &lt;&lt;&lt;</strong></a></p>
 <p><a href="https://oto-bundle.webflow.io/posts/bonuses-option-2" target="_blank" rel="nofollow noopener"><strong>&gt;&gt; Option 2: Check Out $9000+ Bonuses &lt;&lt;&lt;</strong></a></p>
 <p><a href="https://oto-bundle.webflow.io/posts/bonuses-option-3" target="_blank" rel="nofollow noopener"><strong>&gt;&gt;&gt; Option 3: App SoftWare Bonuses &lt;&lt;&lt;</strong></a></p>
